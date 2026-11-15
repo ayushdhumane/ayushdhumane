@@ -2,7 +2,6 @@
 - 👀 I’m interested in many things ,but specially in Ai and ML
 - 🌱 I’m currently learning Data Structure and Algorithm
 - 📫 How to reach me only here, if you find me here.
-- 😄 Pronouns: AAa - Yussh
 - ⚡ Fun fact: You can become knowlegeable by others knowledge ,but not wise by other Wisdom.
 
 <!---
